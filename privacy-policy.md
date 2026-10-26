@@ -40,4 +40,4 @@ We may update this Privacy Policy when the app's data practices change. The curr
 
 ## Contact
 
-For questions about this Privacy Policy, contact: **[replace-with-your-support-email@example.com]**.
+For questions about this Privacy Policy, contact: **dineshrajamanikam@outlook.com**.
